@@ -53,6 +53,7 @@ Vale notar que o _argumento do silêncio_ a favor do dízimo era usado pelos rab
 Davis argumenta que: ''se este detalhe foi incluido no texto é porque o tema (dizimar) deveria ser uma prática comum.'' De fato, dizimar era uma prática comum sim, mas a todas as nações daqueles tempos, portanto nenhuma explicação seria necessária.  Abraao nunca foi instruido antes a ''dar o dízimo'' de maneira regular, e não há evidencias que o tenha feito depois.  A sua doação a Melquisedeque ocorreu como uma ''forma voluntária de retribuir pela função sacerdotal exercida por Melquisedeque no episódio e como oferta de agradecimento a Deus pelo sucesso na guerra que travou.  O contexto demonstra que Abraao possuia o direito de manter para si os despojos.  Pois o Rei de Sodoma lhe pede permissao para dividir.  
 
 >  21 E o rei de Sodoma disse a Abrão: Dá-me a mim as almas e a fazenda toma para ti.
+
 ''De fato, se o dizimo de Abraao servir de alguma forma para modelo aos Cristao, será por prover suporte apenas para _dizimos ocasionais de fontes de renda extraordinárias_ [27]''
 
 Em última análise, poderíamos concluir que o texto é incapaz de provar que a prática de dizimar existiu posteriormente na adoração de Abraão ou se era apenas uma prática comum dos povos daquela época.
