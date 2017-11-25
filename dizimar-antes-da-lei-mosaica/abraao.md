@@ -56,4 +56,4 @@ Davis argumenta que: ''se este detalhe foi incluido no texto é porque o tema (d
 
 ''De fato, se o dizimo de Abraao servir de alguma forma para modelo aos Cristao, será por prover suporte apenas para _dizimos ocasionais de fontes de renda extraordinárias_ [27]''
 
-Em última análise, poderíamos concluir que o texto é incapaz de provar que a prática de dizimar existiu posteriormente na adoração de Abraão ou se era apenas uma prática comum dos povos daquela época.
+Em última análise, poderíamos concluir que o texto é incapaz de provar que a prática de dizimar existiu posteriormente na adoração de Abraão ou se era apenas uma prática comum dos povos daquela época em ocasiões especiais em agradecimento aos deuses.
