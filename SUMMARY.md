@@ -5,6 +5,6 @@
     * [Abel](dizimar-antes-da-lei-mosaica/abel.md)
     * [Abraão](dizimar-antes-da-lei-mosaica/abraao.md)
     * [Jacó](dizimar-antes-da-lei-mosaica/jaco.md)
-    * Conclusão
+    * [Conclusão](dizimar-antes-da-lei-mosaica/conclusao.md)
 * [O Dizimar antes da Lei Mosaica](tithe.md)
 
