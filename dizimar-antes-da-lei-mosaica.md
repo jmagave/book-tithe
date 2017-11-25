@@ -1,6 +1,6 @@
 ## O Dizimar antes da Lei Mosaica ##
 
-Três conjuntos de textos são citados como aqueles que reúnem evidências para suportar a aplicabilidade do dizimar na era da nova aliança, dissociando esta prática como associada à Lei, uma vez que são atribudas a três personagens pré-Lei Mosaica:
+Três conjuntos de textos são citados como aqueles que reúnem evidências para suportar a aplicabilidade do dizimar na era da nova aliança, dissociando esta prática da Lei Mosaica, uma vez que são atribudas a três personagens pré-Lei Mosaica:
 
 * Abel
 * Abraão
