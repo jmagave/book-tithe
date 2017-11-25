@@ -1,4 +1,4 @@
-### Abrãao e Mequizedeque ###
+### Abrãao e Mequisedeque ###
 
 Abraão (de fato, Abrão) erigiu um altar para Deus em Gen 13.18.  O contexto mostra que Abraão o fez em resposta à promessa que Deus lhe fizera em Gen 13.14-17.
 
