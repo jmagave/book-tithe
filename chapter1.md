@@ -32,12 +32,12 @@ Por que Deus aceitou o sacrifício de Abel, mas não o de Caim? Esta questao tem
 
 1. Abel sacrificou um **animal** ao inves de outro tipo de oferta
 1. A **qualidade** do sacrificio de Caim foi inferior
-1. O sacrificio de Caim foi inaceitaval por causa da deficiência do caráter do ofertante
+1. O sacrificio de Caim foi inaceitaval por causa da **deficiência** do caráter do ofertante
 1. O sacrificio de Abel resultou do ato de **decimar**.
 
-Devemos considerar que o NT adiciona que o sacrifício de Abel foi feito "na fé", o de Caim, não o foi (Heb 11.4).  O autor de Hebreu, de forma inspirada declara o que diferenciou o sacrificio de Abel do de Caim, a fé daquele.
+Devemos considerar que o NT adiciona que o sacrifício de Abel foi feito "na fé", o de Caim, não o foi (Heb 11.4).  O autor de Hebreu, de forma inspirada declara o quê diferenciou o sacrificio de Abel do de Caim: a fé daquele.
 
-O ultimo item, que o sacrificio de Abel foi aceito por satisfazer a ''orderm'' de decimar, ou o ''principio'' de decimar, tem fundamento na (re)traducao de Gen 4.7 conforme a LXX, que sugere que o sacrificio de Caim não foi aceito por este não ter ''dividido corretamente''.  Tal afirmativa já encontra dificuldades ao provar que a LXX é anterior ao texto Masorético (MT), além de que, como demonstrado acima, Heb 11.4 nada diz a respeito disto, pelo contrário torna claro o motivo da não aceitação:  a falta de fé de Caim.  Embora possamos inferir que a fé aqui trata-se da provisão de Deus para aquele de dá o dízimo?! 
+A afirmação que o sacrificio de Abel foi aceito por satisfazer a ''orderm'' de decimar, ou o ''principio'' de decimar, tem fundamento na (re)traducao de Gen 4.7 conforme a LXX, que sugere que o sacrificio de Caim não foi aceito por este não ter ''dividido corretamente''.  Tal afirmativa já encontra dificuldades ao provar que a LXX é anterior ao texto Masorético (MT), além de que, como demonstrado acima, Heb 11.4 nada diz a respeito disto, pelo contrário torna claro o motivo da não aceitação:  a falta de fé de Caim.  Embora possamos inferir que a fé aqui trata-se da provisão de Deus para aquele de dá o dízimo?! 
 
 ### Abrãao e Mequizedeque ###
 
@@ -53,14 +53,17 @@ Estaria aqui a gênese do dízimo anterior a Lei?  Genesis 14 nada diz a respeit
 
 #### Quem dizimou a quem? ####
 
-A orferto do Dízimo é algo material, e portanto ao ser ''entregue'' deve ser a alguém.  Em Gen 14.18 fica claro que Melquisedeque era ''_sacerdote_ do Deus Altíssimo, o Possuidor dos céus e da terra;'' -- a obra de entregar os inimigos na mãos de Abraão foi de Deus, como reconhecimento disto, ''alguém'' dá o dízimo.  A questão é, sendo o discurso de Gen 18.19 de autoria de Melquisedeque, então foi Melquisedeque quem deu o dízimo a Abrãao ou vice versa?  Ou se considerarmos o escritor de Genesis como um terceiro onisciente (Moisés), e este está contado a história de Abraão, então seria Abraão, quem deu o dizimo a Melquisedeque.  John A. Emerton (''The Riddle of Genesis XIV", VT 21 [1971]:407-8), conclui que Abraão deu a Melquisedeque o dizimo.  ''Uma vez que a tradução de 'dizimo' ... é quase invariavelmente associada a um ato sagrado, e uma vez que Melquisedeque é um sacerdote, é natural supor que ele é quem recebe o dízimo e que Abrão é quem o paga.''  Mas fica esta controvérsia inicial.
+A orferto do Dízimo é algo material, e portanto ao ser ''entregue'' deve ser a alguém.  Em Gen 14.18 fica claro que Melquisedeque era ''_sacerdote_ do Deus Altíssimo, o Possuidor dos céus e da terra;'' -- a obra de entregar os inimigos na mãos de Abraão foi de Deus, como reconhecimento disto, ''alguém'' dá o dízimo.  A questão é, sendo o discurso de Gen 18.19 de autoria de Melquisedeque, então foi Melquisedeque quem deu o dízimo a Abrãao ou vice versa?  Ou se considerarmos o escritor de Genesis como um terceiro onisciente (Moisés), e este está contado a história de Abraão, então seria Abraão, quem deu o dizimo a Melquisedeque.  John A. Emerton (''The Riddle of Genesis XIV", VT 21 [1971]:407-8), conclui que Abraão deu a Melquisedeque o dizimo.  ''Uma vez que a tradução de 'dizimo' ... é quase invariavelmente associada a um ato sagrado, e uma vez que Melquisedeque é um sacerdote, é natural supor que ele é quem recebe o dízimo e que Abrão é quem o paga.''  Isto é fatalmente esclarecido em Hb 7.4:
+
+> Considerai, pois, quão grande era _este_ [Melquisedeque], **a quem até o patriarca Abraão deu os dízimos** dos despojos.
 
 #### Este ato foi uma prática ou ato isolado? ####
 
-Se considerarmos que Abrão deu o dizimo a Melquisedeque, que era sacerdote, e posteriormente Abrão fez outras colheitas, e tinha a prática de dizimar, a quem ele entregava o dízimo?  Seria Melquisedeque um sacerdote intinerante?  Em segundo lugar, o mesmo verso diz que Abraão deu o dízmo de ''tudo'' -- porém este tudo era o que foi recuperado?  Se o fosse, seria ''duplo'' dizimar?  Se não foi, então eram os despojos? O autor de Hebreus 7.4 esclarece:
+Se considerarmos que Abrão deu o dizimo a Melquisedeque, que era sacerdote, e posteriormente Abrão fez outras colheitas, e tinha a prática de dizimar, a quem ele entregava o dízimo?  Seria Melquisedeque um sacerdote intinerante?  Em segundo lugar, o mesmo verso diz que Abraão deu o dízmo de ''tudo'' -- porém este tudo era o que foi recuperado?  Se o fosse, seria ''duplo'' dizimar?  Se não foi, então eram os despojos? O autor de Hebreus 7.4 novamente esclarece: 
 
 > Considerai, pois, quão grande era _este_ [Melquisedeque], a quem até o patriarca Abraão deu os dízimos dos **despojos**.
 
+> Considerai, pois, quão grande era _este_ [Melquisedeque], a quem até o patriarca Abraão deu os dízimos dos **despojos**.
 Não há portanto, nenhuma indicação que esta era uma prática que se incorporou a liturgia de adoracao de Abraao.  
 
 O argumento que Abraao estaria seguindo a Lei, antes desta ter sido entregue encontra dificuldades nesta passagem porque, de acordo com Numeros 31.27-29, em contexto semelhante, diz:
