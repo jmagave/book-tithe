@@ -1,10 +1,3 @@
-
-
-
-
-
-
- 
 ### Jacó ###
 
 O caso de Jacó, de maneira similar, será demonstrado como não dando suporte à alegação de que o dizimo é de relevância continuada.  Pelo contrário suporta a evidêcia que a existência de uma sistematica de dizimo como sendo anterior a Lei aponta na direacao contraria.
@@ -52,7 +45,3 @@ Em nenhum lugar das escrituras há o registro de que Jacó cumpriu o seu voto, d
 >  35 Depois, disse Deus a Jacó: Levanta-te, sobe a Betel e habita ali; faze ali um altar ao Deus que te apareceu quando fugiste diante da face de Esaú, teu irmão
 
 Ali Jacó edificou ali um altar, e derramou libação e azeite (v. Gn 35.14), mas nenhuma menção é feita sobre dizimar.  A afirmativa que Jacó apenas agiu por medo e incredulidade ao fazer o seu voto e que não há menção subsequente que ele o tenha cumprido minam o alicerce de ser o dízimo, prática, ordenança e liturgia, antes da Lei.  O que transparece é que Jacó com seu voto estava seguindo os passos de Abraão ou tomando emprestada uma prática comum das nações ao seu redor.  Os ''SE'' de Jacó no seu contrato com Deus, também contradizem ser o dízimo uma lei universal, porque se assim o fosse não seria objeto de contrato.  É duvidoso que Jacó teria colocado condicionantes em algo que ele cresse ser a lei de Deus.
-
-### Conclusão ###
-
-
