@@ -12,6 +12,10 @@ A questão que se apresenta é:
 * Em segundo lugar - mesmo que estes textos o descrevam assim, isto prova que a prática deve ser continuada como princípio estendido a todos os povos da Nova Aliança?
 * Finalmente - haveria alguma prática similar ao dizimar, observada por outros povos, e foi assimilada pelos personagens?  Especialmente no caso de Abraão e Jacó, certamente.
 
+Aqui caberia uma primeira definição do que é dízimo:
+
+> A décima parte (1:10) da renda auferida do produto do trabalho.  Seja em forma de víveres ou produtos da terra.
+
 A posição deste artigo é:
 
 > Os texto que discutem o dizimar antes da Lei Mosaica não provam, nem comprovam que o dizimar como uma prática *continua* e *sistemática*, mas como uma prática *fortuita*, até mesmo *excepcional*, do ato de **dar**.
