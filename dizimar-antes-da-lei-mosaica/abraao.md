@@ -14,7 +14,7 @@ Estaria aqui a gênese do dízimo anterior a Lei?  Genesis 14 nada diz a respeit
 
 O dízimo é algo material, e portanto ao ser ''entregue'' o deve ser a alguém.  Em Gen 14.18 fica claro que Melquisedeque era ''_sacerdote_ do Deus Altíssimo, [este Deus] o Possuidor dos céus e da terra;'' - a obra de entregar os inimigos na mãos de Abraão foi de Deus, como reconhecimento disto, o dízimo é ofertado a Deus, por um doador e um recipiente.  A questão é, sendo o discurso de Gen 18.19 de autoria de Melquisedeque, então foi Melquisedeque quem deu o dízimo a Abrãao ou vice versa?  Ou se considerarmos o escritor de Genesis como um terceiro onisciente (Moisés), e este está contado a história de Abraão, então seria Abraão, quem deu o dizimo a Melquisedeque.  John A. Emerton (''The Riddle of Genesis XIV", VT 21 [1971]:407-8), conclui que Abraão deu a Melquisedeque o dizimo.  ''Uma vez que a tradução de 'dizimo' ... é quase invariavelmente associada a um ato sagrado, e uma vez que Melquisedeque é um sacerdote, é natural supor que ele é quem recebe o dízimo e que Abrão é quem o paga.''  
 
-Toda esta discussão é artificial, uma vez que o autor inspirado de Hebreus7.4 afirma categoricamente:
+Toda esta discussão é artificial, uma vez que o autor inspirado de Hebreus 7.4 afirma categoricamente:
 
 > Considerai, pois, quão grande era _este_ [Melquisedeque], a quem até **o patriarca Abraão deu** os dízimos dos despojos.
 
