@@ -1,6 +1,6 @@
 ## O Dízimo Festivo ##
 
-Deuteronômio 14.22-27 descreve um segundo ''tipo'' de dízimo[^59].  Este é distinto daquele descrito em Números 18.21.  Em Números 18, o dízimo era dado aos levitas para manutenção destes, porque estes ministravam a/por Israel; em Deuteronômo 14.22-27 aqueles que traziam os dízimo são descritos como co-participantes deste. 
+Deuteronômio 14.22-27 descreve um segundo ''tipo'' de dízimo[^59].  Este é distinto daquele descrito em Números 18.21.  Ali, o dízimo era dado aos levitas para manutenção destes, porque estes ministravam a/por Israel; Aqui aqueles que traziam os dízimo são descritos como participantes deste. 
 
 * Deuteronômio 14.22-29
 
