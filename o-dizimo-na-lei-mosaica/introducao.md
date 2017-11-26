@@ -1,4 +1,4 @@
-Há très passagens principais relacionadas ao dízimo na Lei Mosaica:
+Há três passagens principais relacionadas ao dízimo na Lei Mosaica:
 
 * Levíticos 27:30-33
 
