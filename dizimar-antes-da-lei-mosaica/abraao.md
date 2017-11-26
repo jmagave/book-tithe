@@ -45,7 +45,7 @@ Para resumir, Abraão deu 1:10 dos despojos a Melquisedeque, de forma diferente 
 
 Finalmente, pode-se apelar para o argumento do silêncio. Este de fato existe, mas trabalha nas duas direções.  
 
-1. De um lado, aqueles que dizem que o dizimo nao é mandamento para nosso tempo argumentam que uma vez que o texto não diz que Abraão dizimava continuamente, e portanto podemos tomar isto pelo seu valor de face e concluir que ele não o fazia.  
+1. De um lado, aqueles que dizem que o dizimo nao é mandamento para nosso tempo argumentam que uma vez que o texto **não diz que Abraão dizimava continuamente** podemos tomar isto como _prima facie_ e concluir que ele não o fazia.  
 2. Por outro lado, aqueles que apoiam a nocao de que todos os crentes devem dar pelo menos a decima parte de sua rende nos dias de hoje advogam que o texto nada diz que Abraão **deixou** de dizimar pelo resto de sua vida, _logo_ podemos assumir que ele o fez.  
 
 Vale notar que o _argumento do silêncio_ a favor do dízimo era usado pelos rabinos judeus.  A regra de interpretação destes era que ''nada pode ser considerado como existente antes de sua menção pelo texto bíblico''[^21] [^21]:F. F. Bruce, _A Epistola aos Hebreus_].  Portanto, de acordo com a interpretacao rabinica, sendo esta a primeria vez que Abrrao, ou qualquer outro personegem biblico dizimou, então esta prática passa a existir a partir deste momento.  O minimo que podemos dizer a respeito disto é que este era provavelmente o entendimento desta passagem pelos judeus, incluindo o judaismo dos tempos de Cristo.
