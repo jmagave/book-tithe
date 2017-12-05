@@ -1,6 +1,6 @@
 ## O Dizimar antes da Lei Mosaica ##
 
-Para refutar a ideia que o dízimo teria sido instituído como parte da Lei Mosaica, são apresentados três conjuntos de textos do Antigo Testamento como aqueles que reúnem evidências para suportar a aplicabilidade do dizimar na era da nova aliança, uma vez que são atribudas a três personagens pré-Lei Mosaica - dando a entender que a prática deve ser aplicada a todas as épocas:
+Para apoiar a ideia que o dízimo teria sido instituído como parte da Lei Mosaica, são apresentados três conjuntos de textos do Antigo Testamento como aqueles que reúnem evidências a aplicabilidade do dizimar na era da nova aliança, uma vez que são atribudas a três personagens pré-Lei Mosaica - dando a entender que a prática deve ser aplicada a todas as épocas:
 
 * Abel
 * Abraão
